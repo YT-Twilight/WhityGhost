@@ -1,1 +1,1 @@
-Okay, now I will change the world.
+Oh, soon he will change the world.
